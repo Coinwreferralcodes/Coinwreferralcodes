@@ -134,7 +134,7 @@ Get **20% off trading fees + up to $3600 bonus** today!
 ## 🔗 Add Your Website Link Here
 Paste your website URL below:
 
-**Your Website:** [Click Here](https://example.com)
+**Your Website:** [Click Here](https://coinwreferralcode.com/)
 
 ---
 
